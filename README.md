@@ -18,6 +18,6 @@
 ---
 
 ## 🔗 **Me retrouver ailleurs**
-🌐 [Portfolio](https://jerem-gabriel.com)  
+🌐 [Portfolio](https://jeremgabriel.com)  
 
 🎉 **Merci de visiter mon profil !** ✨ _Passe une super journée_ 😎  
